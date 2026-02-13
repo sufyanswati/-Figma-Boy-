@@ -1,1 +1,1 @@
-#[ -Figma-Boy-](https://sufyanswati.github.io/-Figma-Boy-/)
+https://sufyanswati.github.io/-Figma-Boy-/
